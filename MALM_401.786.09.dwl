@@ -1,3 +1,3 @@
 Juliet
 MacBook Pro di Giulia 
-giovedì 11 maggio 2017  11:13:46 Ora legale dell’Europa centrale
+giovedì 11 maggio 2017  11:20:18 Ora legale dell’Europa centrale
